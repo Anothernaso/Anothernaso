@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Anothernaso
+- 👀 I’m interested in developing pointless software.
+- 🌱 I’m currently learning nothing.
+- 💞️ I’m looking to collaborate on nothing.
+- 📫 How to reach me: you can't
+- ⚡ Fun fact: nothing is fun in life
